@@ -1,1 +1,1 @@
-can understand the projects
+you can understand the projects
